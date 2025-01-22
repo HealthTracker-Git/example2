@@ -1,5 +1,7 @@
 # example2
 
-RIP pc
+XDDDDDDD
 
-Nuevo rip pc
+XDDD
+
+NO RIPEO PC
